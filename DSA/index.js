@@ -1,2 +1,0 @@
-kachu to ho jay
-
